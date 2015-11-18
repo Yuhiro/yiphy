@@ -180,3 +180,35 @@
 [Groove]
 (http://media2.giphy.com/media/CeZgkMTPwyLwQ/giphy.gif)
 
+[Club Dance]
+(https://media.giphy.com/media/3oEduI3Kq0q8hzccJW/giphy.gif)
+
+[Power Rangers Shrug]
+(http://i.imgur.com/7qkDLr3.gif)
+
+[Nervous Drinking]
+(http://i.imgur.com/wkC2vN8.gif)
+
+[Sad Yoda]
+(http://i.imgur.com/RySz2sL.gif)
+
+[Sad Face Fade Away]
+(http://i.imgur.com/oV9VzM7.gif)
+
+[Stumped]
+(http://www.reactiongifs.com/r/stumped.gif)
+
+[Yes - Rick and Morty]
+(http://i.imgur.com/QWkxfrJ.gif)
+
+[Excited to Eat Deer]
+(http://i.imgur.com/DaFXOkN.gif)
+
+[Yawn Face]
+(http://media2.giphy.com/media/KNUJEtcEV6hoc/giphy.gif)
+
+
+[Tenant Head Shake]
+(http://i.imgur.com/sQppvx6.gif)
+
+
