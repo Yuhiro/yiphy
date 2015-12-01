@@ -15,6 +15,9 @@
 [Batman Thumbs Up]
 (http://media4.giphy.com/media/5DQdk5oZzNgGc/giphy.gif)
 
+[Bat Plane Thumbs Up]
+(http://i.giphy.com/iGGHjzCxell2o.gif)
+
 [Steve Irwin Thumbs Up]
 (http://i.imgur.com/p9jjOCd.gif)
 
@@ -108,9 +111,6 @@
 [Which one of us?]
 (http://i.imgur.com/Mrt1QyX.gif)
 
-[Korra Confused]
-(http://i.imgur.com/k7SssM0.gif)
-
 [Tom Cruise What?]
 (http://i.imgur.com/MA3rMjc.gif)
 
@@ -146,9 +146,6 @@
 
 [Whoa! (Kobe)]
 (http://i.imgur.com/Do67i.gif)
-
-[Stephen Colbert Slow Smile]
-(http://i.giphy.com/1438dnZ4AqjKy4.gif)
 
 [Iron Chef Smile]
 (http://stream1.gifsoup.com/view/12954/iron-chef-bite-o.gif)
@@ -207,8 +204,23 @@
 [Yawn Face]
 (http://media2.giphy.com/media/KNUJEtcEV6hoc/giphy.gif)
 
-
 [Tenant Head Shake]
 (http://i.imgur.com/sQppvx6.gif)
 
+[Walken You Got It]
+(http://i.imgur.com/cjMslVS.gif)
 
+[It is you who are mistaken]
+(http://i.imgur.com/mb2Mim8.gif)
+
+[Ross No]
+(http://i.imgur.com/jjzKFEX.gif)
+
+[WTF are you talking about?]
+(http://i.imgur.com/i6Vu2Gb.gif)
+
+[Cat Working]
+(https://media.giphy.com/media/JIX9t2j0ZTN9S/giphy.gif)
+
+[What? No]
+(https://media.giphy.com/media/26tP31Z0xKf6VKAGA/giphy.gif)
