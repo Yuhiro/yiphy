@@ -66,9 +66,6 @@
 [Disgust (Bowfinger)]
 (http://i.imgur.com/6z3xkAH.gif)
 
-[Sad Machine]
-(http://media0.giphy.com/media/JtIzBrHtfHT3O/giphy.gif)
-
 [Steve Nash Confused]
 (http://reactiongifs.com/r/nswgo.gif)
 
@@ -111,9 +108,6 @@
 [Which one of us?]
 (http://i.imgur.com/Mrt1QyX.gif)
 
-[Tom Cruise What?]
-(http://i.imgur.com/MA3rMjc.gif)
-
 [Timberlake Hold On]
 (https://33.media.tumblr.com/d84344e8cc848accb47a29ec5849869a/tumblr_n1eqnyk4p51r2tuixo1_400.gif)
 
@@ -134,9 +128,6 @@
 
 [Eye Roll (Planet of the Apes)]
 (http://i.imgur.com/TMmlKMJ.gif)
-
-[That's dumb. That is dumb.]
-(http://i.imgur.com/KmBHIvs.gif)
 
 [I know, I know, I know]
 (http://i.imgur.com/L1q1skx.gif)
@@ -189,9 +180,6 @@
 [Sad Yoda]
 (http://i.imgur.com/RySz2sL.gif)
 
-[Sad Face Fade Away]
-(http://i.imgur.com/oV9VzM7.gif)
-
 [Stumped]
 (http://www.reactiongifs.com/r/stumped.gif)
 
@@ -224,3 +212,43 @@
 
 [What? No]
 (https://media.giphy.com/media/26tP31Z0xKf6VKAGA/giphy.gif)
+
+[Mind Blown]
+(http://1.media.dorkly.cvcdn.com/50/27/0d41808f60af8871fa122b3b0f37ab1b.gif)
+
+[Gross Cringe]
+(http://media.giphy.com/media/Nm3mS4RKOhteg/giphy-tumblr.gif)
+
+[Sorry, the board game]
+(http://giphy.com/gifs/supernatural-spn-castiel-9JJE4qu40g5uE)
+
+[Pause, Laugh]
+(http://i.imgur.com/FNT9rKE.gif)
+
+[BB-8 Thumbs Up]
+(https://49.media.tumblr.com/3e650a5db19f4e0f622fca1f702960da/tumblr_o02clzLj9L1u9rwppo1_400.gif)
+
+[Sauce]
+(http://i.imgur.com/4seJ5ou.gif)
+
+[Koala Drum]
+(http://media0.giphy.com/media/lfoC8HjUQlQT6/giphy.gif)
+
+[Problem Soliving]
+(http://i.imgur.com/YmXbK7N.gif)
+
+[Fake High-five]
+(http://media.giphy.com/media/26tOYERSgxVzIvjHy/giphy-tumblr.gif)
+
+[Pew Pew]
+(http://giphy.com/gifs/korean-lee-min-jung-leeminjung-Zn3XWhBdCyWYw)
+
+[No]
+(http://i.imgur.com/5rBdBsz.gif)
+
+[OK, let's go]
+(http://i.giphy.com/co7ueEUtT5Eju.gif)
+
+[Yes, no, I don't know]
+(http://i.imgur.com/azBhD9l.jpg)
+
