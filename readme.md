@@ -252,3 +252,15 @@
 [Yes, no, I don't know]
 (http://i.imgur.com/azBhD9l.jpg)
 
+[Pork Chop Sandwiches]
+(https://media.giphy.com/media/12D1JjCRBvfVJu/giphy.gif)
+
+[Stuff...]
+(http://i.imgur.com/uMp88Nq.gif)
+
+[Angry squirrel]
+(http://i.imgur.com/TyeQx3T.gif)
+
+
+
+
