@@ -261,6 +261,10 @@
 [Angry squirrel]
 (http://i.imgur.com/TyeQx3T.gif)
 
+[Kramer That's True]
+(http://giphy.com/gifs/ap6wcjRyi8HoA)
 
+[Shia Labeouf Happy Cry]
+(http://i.imgur.com/0ATp2lD.gif)
 
 
