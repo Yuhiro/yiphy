@@ -222,7 +222,7 @@
 [Sorry, the board game]
 (http://giphy.com/gifs/supernatural-spn-castiel-9JJE4qu40g5uE)
 
-[Pause, Laugh]
+[Pause, Laugh]	
 (http://i.imgur.com/FNT9rKE.gif)
 
 [BB-8 Thumbs Up]
@@ -243,7 +243,7 @@
 [Pew Pew]
 (http://giphy.com/gifs/korean-lee-min-jung-leeminjung-Zn3XWhBdCyWYw)
 
-[No]
+[No Cigarette]
 (http://i.imgur.com/5rBdBsz.gif)
 
 [OK, let's go]
@@ -266,5 +266,9 @@
 
 [Shia Labeouf Happy Cry]
 (http://i.imgur.com/0ATp2lD.gif)
+
+[Go, Go Away]
+(http://38.media.tumblr.com/ceb684452adcacbd16d91d4017320931/tumblr_mmp6q4HlV11sqghjko1_500.gif)
+
 
 
