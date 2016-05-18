@@ -18,6 +18,9 @@
 [Bat Plane Thumbs Up]
 (http://i.giphy.com/iGGHjzCxell2o.gif)
 
+[Doge Bat Plane Thumbs Up]
+(https://media.giphy.com/media/QwRccTC8Or0Mo/giphy.gif)
+
 [Steve Irwin Thumbs Up]
 (http://i.imgur.com/p9jjOCd.gif)
 
@@ -156,7 +159,7 @@
 [Exhale (Disappointed)]
 (http://i.giphy.com/8aYLkCDqldRbq.gif)
 
-[Batmon Nodding]
+[Batman Nodding]
 (http://media2.giphy.com/media/uNp22kQO4QCxa/giphy.gif)
 
 [Picard Slow Clap]
@@ -270,5 +273,33 @@
 [Go, Go Away]
 (http://38.media.tumblr.com/ceb684452adcacbd16d91d4017320931/tumblr_mmp6q4HlV11sqghjko1_500.gif)
 
+[Shocked]
+(http://giphy.com/gifs/omg-jaw-drop-CG9sLUCIwPt0A)
 
+[Shrug]
+(http://giphy.com/gifs/colin-farrell-i-dont-know-XeXzWgD6P4LG8)
+
+[I Don't Care]
+(http://i.giphy.com/oDXiRdueeFtE4.gif)
+
+[Disgust, Roll Away]
+(http://i.giphy.com/rgmeHic4o14sM.gif)
+
+[Trump Nod]
+(https://media.giphy.com/media/VNF7YegY0DMwU/giphy.gif)
+
+[Oh Right right right right right]
+(https://media.giphy.com/media/U3I5ZJPFJpXRm/giphy.gif)
+
+[huh?]
+(http://giphy.com/gifs/animated-cute-Sl76KuWjuQVjy)
+
+[Crackhead Dance]
+(http://giphy.com/gifs/dave-chappelle-tyrone-biggums-pp9Vekpxwo1LW)
+
+[You Can Do It]
+(https://media.giphy.com/media/Vccpm1O9gV1g4/giphy.gif)
+
+[Sick Reference Bro]
+(http://i.imgur.com/vncZ8J3.gif)
 
