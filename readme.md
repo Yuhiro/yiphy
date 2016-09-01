@@ -144,9 +144,6 @@
 [Iron Chef Smile]
 (http://stream1.gifsoup.com/view/12954/iron-chef-bite-o.gif)
 
-[Bruce Lee Smirk]
-(https://s-media-cache-ak0.pinimg.com/originals/4e/3f/f0/4e3ff069bd296dc313f35b0ae7a6c36c.gif)
-
 [Cringe Hug Fail]
 (http://media1.giphy.com/media/fCGbauwhbkEik/giphy.gif)
 
@@ -170,7 +167,7 @@
 
 [Groove]
 (http://media2.giphy.com/media/CeZgkMTPwyLwQ/giphy.gif)
-
+	
 [Club Dance]
 (https://media.giphy.com/media/3oEduI3Kq0q8hzccJW/giphy.gif)
 
@@ -273,9 +270,6 @@
 [Go, Go Away]
 (http://38.media.tumblr.com/ceb684452adcacbd16d91d4017320931/tumblr_mmp6q4HlV11sqghjko1_500.gif)
 
-[Shocked]
-(http://giphy.com/gifs/omg-jaw-drop-CG9sLUCIwPt0A)
-
 [Shrug]
 (http://giphy.com/gifs/colin-farrell-i-dont-know-XeXzWgD6P4LG8)
 
@@ -305,4 +299,46 @@
 
 [Woo... woo woo woo woo]
 (http://i.imgur.com/6aw0RmC.gif)
+
+[Animated Dance]
+(http://i.giphy.com/l41YqCTs4HKajUMta.gif)
+
+[Who me? Nooooo.]
+(http://i.imgur.com/L9QSQku.gif)
+
+[Yes, no, I don't know]
+(https://i.redd.it/5dr730dy0u8x.gif)
+
+[Sometimes you gotta work a little]
+(http://thumbs.gfycat.com/ArtisticYellowBluewhale-size_restricted.gif)
+
+[What Jeopardy]
+(http://i.imgur.com/X0vfSN0.gif)
+
+[We are Laughing]
+(https://media.giphy.com/media/vWDrezW0rMjmM/giphy.gif)
+
+[Carp Surprise]
+(http://i.imgur.com/RJ6S6eY.gif)
+
+[Hilary Surprised]
+(https://i.imgur.com/wFovN4O.gif)
+
+[Nod, nod, nod]
+(http://i.imgur.com/ZNvTDck.gif)
+
+[Will Surprised]
+(https://media.giphy.com/media/WuGSL4LFUMQU/giphy.gif)
+
+[Burn]
+(http://i.imgur.com/YKZA6US.gif)
+
+[Cringe]
+(http://i.imgur.com/QO3Hbjc.gif)
+
+[Rub Hands]
+(https://giant.gfycat.com/GleefulShrillAvians.gif)
+
+[Ninja Turtle Meditate]
+(http://67.media.tumblr.com/9c2a0567391893046884dedb751fcdd3/tumblr_n59a02mVI21rpfx57o1_400.gif)
 
