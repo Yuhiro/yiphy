@@ -342,3 +342,51 @@
 [Ninja Turtle Meditate]
 (http://67.media.tumblr.com/9c2a0567391893046884dedb751fcdd3/tumblr_n59a02mVI21rpfx57o1_400.gif)
 
+[Who, me?]
+(http://media0.giphy.com/media/KQm5O05y9rzQA/giphy.gif)
+
+[Popcorn]
+(http://i.imgur.com/MrW5mUX.gif)
+
+[Antonio Laptop Reaction]
+(http://i.imgur.com/QONVIyz.gif)
+
+[Brush Shoulder Off]
+(https://media.giphy.com/media/iwvuPyfi7z14I/giphy.gif)
+
+[woo, ok]
+(http://i.imgur.com/g739zFH.gif)
+
+[wave, nope]
+(https://uncletnuc.files.wordpress.com/2016/03/encino-man-head-no.gif?w=639)
+
+[Jack Black conference call]
+(http://i.imgur.com/i2nrzUl.gif)
+
+[No Finger Shake]
+(https://media.giphy.com/media/SG6LFWb90dB96/giphy.gif)
+
+[National Treasure]
+(http://i.imgur.com/vCRTtQF.gif)
+
+[Wrong, Wrong, Wrong]
+(http://i.imgur.com/5RSTvNg.gif)
+
+[WTF are we talking about]
+(http://i.imgur.com/8nyYvmx.gif)
+
+[Head shake]
+(http://i.imgur.com/jlttt09.gif)
+
+[I Lied]
+(http://i.imgur.com/Mjqizf7.gif)
+
+[Hey Man Relax]
+(http://i.imgur.com/sQeXGRC.gif)
+
+[Nope]
+(http://i.imgur.com/AmxNebi.gif)
+
+[House nod]
+(http://i.giphy.com/13ZHjidRzoi7n2.gif)
+
