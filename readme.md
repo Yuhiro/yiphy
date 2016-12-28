@@ -360,9 +360,6 @@
 [wave, nope]
 (https://uncletnuc.files.wordpress.com/2016/03/encino-man-head-no.gif?w=639)
 
-[Jack Black conference call]
-(http://i.imgur.com/i2nrzUl.gif)
-
 [No Finger Shake]
 (https://media.giphy.com/media/SG6LFWb90dB96/giphy.gif)
 
@@ -375,7 +372,7 @@
 [WTF are we talking about]
 (http://i.imgur.com/8nyYvmx.gif)
 
-[Head shake]
+[Head shake Parks and Rec]
 (http://i.imgur.com/jlttt09.gif)
 
 [I Lied]
@@ -389,4 +386,43 @@
 
 [House nod]
 (http://i.giphy.com/13ZHjidRzoi7n2.gif)
+
+[Blank Face]
+(http://i.imgur.com/rdlXgjT.gif)
+
+[Blank Stare]
+(http://i.imgur.com/znwWdJx.jpg)
+
+[Judge Judy Time]
+(http://i.imgur.com/83OdfVG.gif)
+
+[I'm doing my part]
+(http://i.imgur.com/42wVOMl.gif)
+
+[I don't believe you]
+(http://i.imgur.com/okp66FD.gif)
+
+[Let it go]
+(http://giphy.com/gifs/frozen-gif-gifs-nXEbFijsWaGQM)
+
+[Suprised Agreement]
+(https://tenor.co/rrm4.gif)
+
+[What was that?]
+(https://tenor.co/AgU0.gif)
+
+[Matt Radar technician thumbs up]
+(http://cdn.fansided.com/wp-content/blogs.dir/319/files/2016/03/MATT-RADAR-TECH.gif)
+
+[Palpatine Only Now at the End]
+(https://giant.gfycat.com/ThinCorruptFlatfish.gif)
+
+[Stare]
+(http://i.imgur.com/IgRIU.gif)
+
+[You were right]
+(http://i.imgur.com/otLI8An.gif)
+
+[Thinking...No]
+(http://i.imgur.com/bPXFXW7.gif)
 
