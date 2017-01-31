@@ -408,7 +408,7 @@
 [Suprised Agreement]
 (https://tenor.co/rrm4.gif)
 
-[What was that?]
+[What was that? Trump]
 (https://tenor.co/AgU0.gif)
 
 [Matt Radar technician thumbs up]
@@ -428,3 +428,7 @@
 
 [Finger Kiss - Food]
 (https://media.giphy.com/media/3o8doT9BL7dgtolp7O/giphy.gif)
+
+[Neat]
+(https://media0.giphy.com/media/oit9mu0v5LqzC/200.gif#10)
+
