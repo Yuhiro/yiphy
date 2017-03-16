@@ -409,7 +409,7 @@
 (https://tenor.co/rrm4.gif)
 
 [What was that? Trump]
-(https://tenor.co/AgU0.gif)
+(https://media.tenor.co/images/01d6490b77d71e9aa401032ced3acdb6/tenor.gif)
 
 [Matt Radar technician thumbs up]
 (http://cdn.fansided.com/wp-content/blogs.dir/319/files/2016/03/MATT-RADAR-TECH.gif)
@@ -431,4 +431,10 @@
 
 [Neat]
 (https://media0.giphy.com/media/oit9mu0v5LqzC/200.gif#10)
+
+[Trump pffft]
+(https://media.giphy.com/media/11DFuwckOK9mdG/giphy.gif)
+
+[Glass case of emotion]
+(http://i1017.photobucket.com/albums/af300/katrinaswift/UNNECESSARY%20GIFS/2dqkfhxjpg.gif)
 
