@@ -381,9 +381,6 @@
 [Hey Man Relax]
 (http://i.imgur.com/sQeXGRC.gif)
 
-[Nope]
-(http://i.imgur.com/AmxNebi.gif)
-
 [House nod]
 (http://i.giphy.com/13ZHjidRzoi7n2.gif)
 
@@ -437,4 +434,14 @@
 
 [Glass case of emotion]
 (http://i1017.photobucket.com/albums/af300/katrinaswift/UNNECESSARY%20GIFS/2dqkfhxjpg.gif)
+
+[Sounds good, doesn't work]
+(http://giphy.com/gifs/election2016-debate-presidential-2016-26uf2JHNV0Tq3ugkE)
+
+[That was too easy]
+(https://i.imgur.com/vmp8PEh.gif)
+
+[It's the best, I love it]
+(https://68.media.tumblr.com/8680eaed61ccf9e128b1bc8faeb6b81d/tumblr_oll6szkUMF1s9a9yjo1_500.gif)
+
 
