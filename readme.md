@@ -444,4 +444,12 @@
 [It's the best, I love it]
 (https://68.media.tumblr.com/8680eaed61ccf9e128b1bc8faeb6b81d/tumblr_oll6szkUMF1s9a9yjo1_500.gif)
 
+[It's fine, it's fine]
+(http://gph.is/2oqXaso)
+
+[Mild Shock]
+(http://i.imgur.com/KR93TA2.gif)
+
+[Raise Eyebrows]
+(http://giphy.com/gifs/what-we-do-in-the-shadows-hBfvyF6k9RMIM)
 
