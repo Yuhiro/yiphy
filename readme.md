@@ -1,7 +1,7 @@
 ## GIFs
 
 [Bearded Nod]
-(http://img.pandawhale.com/post-23470-Jeremiah-Johnson-nod-cropped-g-jtcK.gif)
+(http://www.reactiongifs.us/wp-content/uploads/2013/10/jeremiah_johnson_nodding.gif)
 
 [Surprised]
 (http://i.imgur.com/7051hne.gif)
@@ -285,9 +285,6 @@
 [Oh Right right right right right]
 (https://media.giphy.com/media/U3I5ZJPFJpXRm/giphy.gif)
 
-[huh?]
-(http://giphy.com/gifs/animated-cute-Sl76KuWjuQVjy)
-
 [Crackhead Dance]
 (http://giphy.com/gifs/dave-chappelle-tyrone-biggums-pp9Vekpxwo1LW)
 
@@ -433,7 +430,7 @@
 (https://media.giphy.com/media/11DFuwckOK9mdG/giphy.gif)
 
 [Glass case of emotion]
-(http://i1017.photobucket.com/albums/af300/katrinaswift/UNNECESSARY%20GIFS/2dqkfhxjpg.gif)
+(http://i.imgur.com/pLgGpOz.gif)
 
 [Sounds good, doesn't work]
 (http://giphy.com/gifs/election2016-debate-presidential-2016-26uf2JHNV0Tq3ugkE)
@@ -455,4 +452,28 @@
 
 [Single Tear]
 (https://media.giphy.com/media/q3uRaP1jUc3Li/giphy.gif)
+
+[Pretending to Care]
+(http://i.imgur.com/tv9aZlT.gif)
+
+[Kid Dance]
+(http://giphy.com/gifs/day-weekend-start-Y5pJPmh9IWMKc)
+
+[Happy Guy Fieri]
+(http://i.imgur.com/1JgiNCd.gif)
+
+[Unacceptable]
+(https://media.giphy.com/media/QUaqJRizED5NC/giphy.gif)
+
+[Alright Agreement]
+(https://media.giphy.com/media/FqT0hV14vYnq8/giphy.gif)
+
+[Excited, not excited]
+(http://i.imgur.com/O9uGDUh.gif)
+
+[Cross-eyed salute]
+(https://thumbs.gfycat.com/UnequaledBigEsok-max-1mb.gif)
+
+[Take my money]
+(https://giphy.com/gifs/french-week-sDcfxFDozb3bO)
 
