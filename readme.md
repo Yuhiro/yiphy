@@ -234,7 +234,7 @@
 [Koala Drum]
 (http://media0.giphy.com/media/lfoC8HjUQlQT6/giphy.gif)
 
-[Problem Soliving]
+[Problem Solving]
 (http://i.imgur.com/YmXbK7N.gif)
 
 [Fake High-five]
@@ -479,3 +479,12 @@
 
 [Good Luck]
 (https://m.popkey.co/864f0b/mz5Zy.gif)
+
+[Dumb and dumber shrug]
+(https://i.giphy.com/media/w0mylo7p4OXUQ/giphy.gif)
+
+[Single dollar]
+(https://i.imgur.com/Kx3JfSq.gif)
+
+[I'm cool]
+(https://i.giphy.com/media/xfD6mEBfQM3wk/200w.gif)
