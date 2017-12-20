@@ -488,3 +488,13 @@
 
 [I'm cool]
 (https://i.giphy.com/media/xfD6mEBfQM3wk/200w.gif)
+
+[Buffy Skeptical]
+(http://i.imgur.com/p1asN.gif)
+
+[Here you go]
+(https://i.imgur.com/HyI5Jca.gif)
+
+[Tidus Pray]
+(https://tenor.com/view/good-luck-titus-praying-pray-igot-you-gif-6070930)
+
