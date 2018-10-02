@@ -253,7 +253,7 @@
 (http://i.imgur.com/azBhD9l.jpg)
 
 [Pork Chop Sandwiches]
-(https://media.giphy.com/media/12D1JjCRBvfVJu/giphy.gif)
+(https://i.giphy.com/media/12D1JjCRBvfVJu/giphy.gif)
 
 [Stuff...]
 (http://i.imgur.com/uMp88Nq.gif)
@@ -358,7 +358,7 @@
 (https://uncletnuc.files.wordpress.com/2016/03/encino-man-head-no.gif?w=639)
 
 [No Finger Shake]
-(https://media.giphy.com/media/SG6LFWb90dB96/giphy.gif)
+(https://i.giphy.com/media/SG6LFWb90dB96/giphy.gif)
 
 [National Treasure]
 (http://i.imgur.com/vCRTtQF.gif)
@@ -369,7 +369,7 @@
 [WTF are we talking about]
 (http://i.imgur.com/8nyYvmx.gif)
 
-[Head shake Parks and Rec]
+[Head shake Parks and Rec]	
 (http://i.imgur.com/jlttt09.gif)
 
 [I Lied]
@@ -433,7 +433,7 @@
 (http://i.imgur.com/pLgGpOz.gif)
 
 [Sounds good, doesn't work]
-(http://giphy.com/gifs/election2016-debate-presidential-2016-26uf2JHNV0Tq3ugkE)
+(https://media.giphy.com/media/26uf2JHNV0Tq3ugkE/giphy_s.gif)
 
 [That was too easy]
 (https://i.imgur.com/vmp8PEh.gif)
@@ -448,7 +448,7 @@
 (http://i.imgur.com/KR93TA2.gif)
 
 [Raise Eyebrows]
-(http://giphy.com/gifs/what-we-do-in-the-shadows-hBfvyF6k9RMIM)
+(https://i.giphy.com/media/hBfvyF6k9RMIM/giphy.gif)
 
 [Single Tear]
 (https://media.giphy.com/media/q3uRaP1jUc3Li/giphy.gif)
@@ -475,9 +475,9 @@
 (https://thumbs.gfycat.com/UnequaledBigEsok-max-1mb.gif)
 
 [Take my money]
-(https://giphy.com/gifs/french-week-sDcfxFDozb3bO)
+(https://i.giphy.com/media/sDcfxFDozb3bO/giphy.gif)
 
-[Good Luck]
+[Lando Good Luck]
 (https://m.popkey.co/864f0b/mz5Zy.gif)
 
 [Dumb and dumber shrug]
@@ -496,5 +496,16 @@
 (https://i.imgur.com/HyI5Jca.gif)
 
 [Tidus Pray]
-(https://tenor.com/view/good-luck-titus-praying-pray-igot-you-gif-6070930)
+(https://media1.tenor.com/images/eb4737a64d844edb2fbcf49dba4d31e1/tenor.gif)
 
+[Internally Outraged]
+(https://media2.giphy.com/media/l0K4fIEZ1FFiWFJPq/giphy.gif)
+
+[Skeptical Ok]
+(https://i.imgur.com/brStbXK.gif)
+
+[Who are you talking to?]
+(https://i.redd.it/3490ewuzt0n11.gif)
+
+[Confused Tom Hardy]
+(https://i.imgur.com/Fbk3neP.gif)
