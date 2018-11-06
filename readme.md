@@ -39,9 +39,6 @@
 [Finished the Job]
 (http://i.giphy.com/9EIO6RxLUhFPG.gif)
 
-[I don't Give A Shit]
-(http://media2.giphy.com/media/ciqSxn4GaWlHO/giphy.gif)
-
 [K!]
 (http://media.giphy.com/media/KyWQ96Lu2QCRi/giphy-tumblr.gif)
 
@@ -98,9 +95,6 @@
 
 [Laugh Away]
 (http://i.imgur.com/h9kS8.gif)
-
-[Coffee Aww]
-(http://media.giphy.com/media/5wWf7HdrVtSstvV7GM0/giphy.gif)
 
 [Homer Fade Away]
 (http://i.imgur.com/Z1eIy.gif)
@@ -509,3 +503,7 @@
 
 [Confused Tom Hardy]
 (https://i.imgur.com/Fbk3neP.gif)
+
+[Star Trek Head Explode]
+(https://media.giphy.com/media/NbgeJftsErO5q/giphy.gif)
+
