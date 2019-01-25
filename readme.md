@@ -66,9 +66,6 @@
 [Disgust (Bowfinger)]
 (http://i.imgur.com/6z3xkAH.gif)
 
-[Steve Nash Confused]
-(http://reactiongifs.com/r/nswgo.gif)
-
 [Jack Black Realization]
 (http://i.imgur.com/PH9DNi9.gif)
 
@@ -243,9 +240,6 @@
 [OK, let's go]
 (http://i.giphy.com/co7ueEUtT5Eju.gif)
 
-[Yes, no, I don't know]
-(http://i.imgur.com/azBhD9l.jpg)
-
 [Pork Chop Sandwiches]
 (https://i.giphy.com/media/12D1JjCRBvfVJu/giphy.gif)
 
@@ -296,9 +290,6 @@
 
 [Who me? Nooooo.]
 (http://i.imgur.com/L9QSQku.gif)
-
-[Yes, no, I don't know]
-(https://i.redd.it/5dr730dy0u8x.gif)
 
 [Sometimes you gotta work a little]
 (http://thumbs.gfycat.com/ArtisticYellowBluewhale-size_restricted.gif)
@@ -367,7 +358,7 @@
 (http://i.imgur.com/jlttt09.gif)
 
 [I Lied]
-(http://i.imgur.com/Mjqizf7.gif)
+(https://i.imgur.com/6PlRXhI.gif)
 
 [Hey Man Relax]
 (http://i.imgur.com/sQeXGRC.gif)
@@ -427,7 +418,7 @@
 (http://i.imgur.com/pLgGpOz.gif)
 
 [Sounds good, doesn't work]
-(https://media.giphy.com/media/26uf2JHNV0Tq3ugkE/giphy_s.gif)
+(https://media.giphy.com/media/26uf2JHNV0Tq3ugkE/giphy.gif)
 
 [That was too easy]
 (https://i.imgur.com/vmp8PEh.gif)
@@ -506,4 +497,19 @@
 
 [Star Trek Head Explode]
 (https://media.giphy.com/media/NbgeJftsErO5q/giphy.gif)
+
+[Skeptical]
+(https://tenor.com/view/meh-maybe-nah-workaholics-adam-devine-gif-4836783)
+
+[Italian]
+(https://i.imgur.com/CzOuNXm.gif)
+
+[Cheer and break]
+(https://i.gifer.com/NXkm.gif)
+
+[Surprised blonde dude]
+(https://media1.tenor.com/images/46d73c3cc50fa32e0e1d8c2a38007477/tenor.gif?itemid=7513882)
+
+[Confused Erin]
+(https://i.imgur.com/U1UbZsP.gif)
 
