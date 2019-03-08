@@ -463,7 +463,7 @@
 (https://i.giphy.com/media/sDcfxFDozb3bO/giphy.gif)
 
 [Lando Good Luck]
-(https://m.popkey.co/864f0b/mz5Zy.gif)
+(https://media.giphy.com/media/3ornk7TgUdhjhTYgta/giphy.gif)
 
 [Dumb and dumber shrug]
 (https://i.giphy.com/media/w0mylo7p4OXUQ/giphy.gif)
@@ -489,7 +489,7 @@
 [Skeptical Ok]
 (https://i.imgur.com/brStbXK.gif)
 
-[Who are you talking to?]
+[What the hell are you talking about?]
 (https://i.redd.it/3490ewuzt0n11.gif)
 
 [Confused Tom Hardy]
@@ -512,4 +512,10 @@
 
 [Confused Erin]
 (https://i.imgur.com/U1UbZsP.gif)
+
+[Power Rangers Upset]
+(https://i.giphy.com/media/YpmVBNubONoqs/giphy.gif)
+
+[Larry David Confused]
+(https://media0.giphy.com/media/MyzfERo9SqG1G/giphy.gif?cid=3640f6095c8186815870613063f18f0a)
 
