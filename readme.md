@@ -283,7 +283,7 @@
 (http://i.imgur.com/vncZ8J3.gif)
 
 [Woo... woo woo woo woo]
-(http://i.imgur.com/6aw0RmC.gif)
+(http://i.imgur.com/6aw0RmC.gif)d
 
 [Animated Dance]
 (http://i.giphy.com/l41YqCTs4HKajUMta.gif)
@@ -519,3 +519,8 @@
 [Larry David Confused]
 (https://media0.giphy.com/media/MyzfERo9SqG1G/giphy.gif?cid=3640f6095c8186815870613063f18f0a)
 
+[Fassbender]
+(https://media.giphy.com/media/CeZgkMTPwyLwQ/giphy.gif)
+
+[Wow, that's amazing]
+(https://i.giphy.com/media/sjDV6YTbw8tig/giphy-tumblr.gif)
