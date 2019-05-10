@@ -524,3 +524,6 @@
 
 [Wow, that's amazing]
 (https://i.giphy.com/media/sjDV6YTbw8tig/giphy-tumblr.gif)
+
+[Gasps in Spanish]
+(https://media1.tenor.com/images/cb8f7d353e43d673b4e45b742675305a/tenor.gif?itemid=7667419)
