@@ -210,7 +210,7 @@
 [Gross Cringe]
 (http://media.giphy.com/media/Nm3mS4RKOhteg/giphy-tumblr.gif)
 
-[Sorry, the board game]
+[Sorry, the board game]	
 (http://giphy.com/gifs/supernatural-spn-castiel-9JJE4qu40g5uE)
 
 [Pause, Laugh]	
@@ -527,3 +527,13 @@
 
 [Gasps in Spanish]
 (https://media1.tenor.com/images/cb8f7d353e43d673b4e45b742675305a/tenor.gif?itemid=7667419)
+
+[Lebowski Confused]
+(https://media1.tenor.com/images/624792e08d3ad9d76bd3abb5f0623e19/tenor.gif?itemid=12389327)
+
+[Kid wave bye]
+(https://media.giphy.com/media/m9eG1qVjvN56H0MXt8/giphy.gif)
+
+[Draper k]
+(https://media.giphy.com/media/RLCSAx4DQEJb2/giphy-downsized-large.gif)
+
