@@ -411,7 +411,7 @@
 [Neat]
 (https://media0.giphy.com/media/oit9mu0v5LqzC/200.gif#10)
 
-[Trump pffft]
+[Trump pffft]	
 (https://media.giphy.com/media/11DFuwckOK9mdG/giphy.gif)
 
 [Glass case of emotion]
@@ -536,4 +536,7 @@
 
 [Draper k]
 (https://media.giphy.com/media/RLCSAx4DQEJb2/giphy-downsized-large.gif)
+
+[Burn It]
+(https://thumbs.gfycat.com/JointSandyArawana-small.gif)
 
