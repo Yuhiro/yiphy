@@ -55,16 +55,13 @@
 (http://i.imgur.com/it17Zp6.gif)
 
 [Getting Old]
-(http://i.giphy.com/GrUhLU9q3nyRG.gif)
+(https://media.giphy.com/media/vSkXRfZ9mjNQY/giphy.gif)
 
 [Ain't Nobody Got Time for That]
 (http://i.imgur.com/TONDq.gif)
 
 [Respect]
 (http://i.imgur.com/uqMrxRZ.gif)
-
-[Disgust (Bowfinger)]
-(http://i.imgur.com/6z3xkAH.gif)
 
 [Jack Black Realization]
 (http://i.imgur.com/PH9DNi9.gif)
@@ -134,9 +131,6 @@
 
 [Iron Chef Smile]
 (http://stream1.gifsoup.com/view/12954/iron-chef-bite-o.gif)
-
-[Cringe Hug Fail]
-(http://media1.giphy.com/media/fCGbauwhbkEik/giphy.gif)
 
 [You Got Me]
 (http://i.imgur.com/FXlTQOt.gif)
@@ -283,7 +277,7 @@
 (http://i.imgur.com/vncZ8J3.gif)
 
 [Woo... woo woo woo woo]
-(http://i.imgur.com/6aw0RmC.gif)d
+(http://i.imgur.com/6aw0RmC.gif)
 
 [Animated Dance]
 (http://i.giphy.com/l41YqCTs4HKajUMta.gif)
@@ -542,3 +536,25 @@
 
 [Jake No]
 (https://tenor.com/view/no-noway-nope-jake-gyllenhal-gif-4702544)
+
+[Creepy curtain hide]
+(https://i.imgur.com/2ZmDreZ.gif)
+
+[okay okay okay okay]
+(https://media0.giphy.com/media/R459x856IfF6w/giphy.gif)
+
+[Robot Monkey]
+(https://media.giphy.com/media/H4zeDO4ocDYqY/giphy.gif)
+
+[Simmer down]
+(https://giphy.com/gifs/Friends-season-5-episode-7-friends-tv-iHskdY9SMLFZuQ2u5c)
+
+[Disgusted Blond Kid]
+(https://media.tenor.com/images/3d0a7b551f096361854b3bf1e95235a2/tenor.gif)
+
+[Dance]
+(https://media1.giphy.com/media/gjgWQA5QBuBmUZahOP/giphy-downsized.gif)
+
+[Obi-wan Startled]
+https://media2.giphy.com/media/21KTkjGGTgyzOThcfR/giphy.gif
+
